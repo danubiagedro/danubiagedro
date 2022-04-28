@@ -1,0 +1,4 @@
+- Olá, meu nome é Danúbia!🐼
+- Curso ADS na UNINTER ⌨️🖱️💻
+- Estou aprendendo programação para mudar de carreira 🎯.
+- Você também me encontra no @estuda_ti 🌱
